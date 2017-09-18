@@ -2,6 +2,4 @@
 
 From cats for cats
 
-* slfkjds
-* kjsdf 
-* sdlkfjlkds
+* Ilya Zakharov
